@@ -1,4 +1,5 @@
 # Album 62 - Majesty of truth
+Album 62 is a Christ-centered concept record that confronts cultural confusion, technological seduction, and spiritual darkness with heavenly truth. Blending cinematic rock, global chorus textures, and congregational hymns, it opens with prophetic denunciations of deception and closes in worshipful declarations of Christ’s reign and global mission. The record aims to move listeners from fear to faithful witness anchored in Scripture.
 
 ## TRACK LIST
 
